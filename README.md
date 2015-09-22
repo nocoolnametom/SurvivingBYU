@@ -1,4 +1,4 @@
-# Introduction
+## Introduction
 
 Welcome to BYU!  Is it everything you hoped it would be?  Of course not, you were sold an image by the recruiters and/or loved ones that was intended to get you here.  Now you're here and you can see that BYU is, for the most part, just another college campus.
 
@@ -10,7 +10,7 @@ For some of you (an increasing number over the past decade) the problems are dee
 
 Brigham Young University _can_ be a place where you can have fun, learn to grow up, and gain a good education in some fields (other fields not so much, but we'll go over that later).  With a perspective on what the rules of the "game" are, you can learn how to play by their rules but still find some freedom to live life by your own.
 
-# The Game Without Rules
+## The Game Without Rules
 
 You may think it odd that BYU could be described as a game without rules.  "What are yoy talking about?" I can hear you asking, "There are rules _everywhere!"_
 
@@ -40,46 +40,90 @@ Once you learn to find out what the real rules are, you'll learn that there are 
 
 You'll want to learn what actions occupy that third category because that is the category that will relieve the maddening monotomy of BYU.  This manual will also discuss way that you can break the rules, too, if you want to but it's on your own head if you get caught (remember that you found this manual and it's certainly likely that the Honor Code office has found it as well).
 
-# Sundays
+## Sundays
 
-## Sacrament Meeting
+(tbf...)
 
-### Your Friend, the Smartphone
+### Sacrament Meeting
 
-## Home/Visiting Teaching
+(tbf...)
 
-## Callings
+#### Your Friend, the Smartphone
 
-### Turning Them Down
+(tbf...)
 
-### Fulfilling Them
+### Home/Visiting Teaching
 
-## FHE
+(tbf...)
 
-## Ecclesiastical Endorsement
+### Callings
 
-# Dealing with People
+(tbf...)
 
-## Roommates
+#### Turning Them Down
 
-## Classmates
+(tbf...)
 
-## Teachers
+#### Fulfilling Them
 
-## Random Idiots
+(tbf...)
 
-# Transferring
+### FHE
 
-# So You Want to Break the Honor Code?
+(tbf...)
 
-## Why you shouldn't
+### Ecclesiastical Endorsement
 
-## Why you should
+(tbf...)
 
-## The Rule of Whedon: Don't be a dick (also: don't break the law)
+## Dealing with People
 
-## Word of Wisdom
+(tbf...)
 
-## Sex
+### Roommates
 
-## Being an Exmormon Out Loud
+(tbf...)
+
+### Classmates
+
+(tbf...)
+
+### Teachers
+
+(tbf...)
+
+### Random Idiots
+
+(tbf...)
+
+## Transferring
+
+(tbf...)
+
+## So You Want to Break the Honor Code?
+
+(tbf...)
+
+### Why you shouldn't
+
+(tbf...)
+
+### Why you should
+
+(tbf...)
+
+### The Rule of Whedon: Don't be a dick (also: don't break the law)
+
+(tbf...)
+
+### Word of Wisdom
+
+(tbf...)
+
+### Sex
+
+(tbf...)
+
+### Being an Exmormon Out Loud
+
+(tbf...)
