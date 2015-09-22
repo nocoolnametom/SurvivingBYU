@@ -1,3 +1,7 @@
+# Surviving BYU
+
+This is a manual for people who can't fit into the BYU bubble to survive their time on campus until transferring or graduating.
+
 ## Introduction
 
 Welcome to BYU!  Is it everything you hoped it would be?  Of course not, you were sold an image by the recruiters and/or loved ones that was intended to get you here.  Now you're here and you can see that BYU is, for the most part, just another college campus.
