@@ -10,9 +10,9 @@ For some of you (an increasing number over the past decade) the problems are dee
 
 Brigham Young University _can_ be a place where you can have fun, learn to grow up, and gain a good education in some fields (other fields not so much, but we'll go over that later).  With a perspective on what the rules of the "game" are, you can learn how to play by their rules but still find some freedom to live life by your own.
 
-## The Game Without Rules
+## A Game Without Clear Rules
 
-You may think it odd that BYU could be described as a game without rules.  "What are yoy talking about?" I can hear you asking, "There are rules _everywhere!"_
+You may think it odd that BYU could be described as a game without clear rules.  "What are yoy talking about?" I can hear you asking, "There are rules _everywhere!"_
 
 Yes, there are rules everywhere.  Or what appear to be rules.  Take a look closely at some of those "rules":
 
@@ -28,7 +28,7 @@ What do these statements have in common?  At first glance they appear to be abou
  * Keep yourself clean-shaven.
  * Go to the Devotionals.
 
-You may not _like_ the rules and expectations, but without that friendly veneer do you feel a bit more respected?
+You may not _like_ the rules and expectations, but without that friendly veneer do you at least feel a bit more respected?
 
 That is lesson one: the rules for the game of BYU are often hidden.  They require a bit of work to find out. You'll need to learn to ignore the please for conformity in the rules as publicly presented to find out what the actual rule underneath is stating.
 
